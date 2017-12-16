@@ -1,3 +1,0 @@
-# kiraacorsac.github.io
-
-lisk!
